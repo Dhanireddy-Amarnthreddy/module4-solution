@@ -1,3 +1,4 @@
 out put
 
-![Screenshot 2024-07-24 215851](https://github.com/user-attachments/assets/ffdc5b5b-5e50-48dd-a7d3-d3070629782c)
+![Screenshot 2024-07-24 221302](https://github.com/user-attachments/assets/f9ef5074-48d8-4542-8059-c699860b13ae)
+
